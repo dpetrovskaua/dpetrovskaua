@@ -1,4 +1,3 @@
 ## XOXO
 
-![0fc57c690ae25c8687562de40b673cd2](https://github.com/user-attachments/assets/c12f9995-2050-4c0d-9302-e2b8cad57b05)
-
+![f6897485bb0d237bf43aaa3d9d0e80e7](https://github.com/user-attachments/assets/bf39d50a-5030-4c84-96b4-d80539a584a3)
